@@ -1,1 +1,3 @@
+As a creative designer with a multitude of skills, I am proficient in crafting high-quality designs that effectively communicate my clients' messages. With expertise in tools such as Adobe Illustrator, Adobe Photoshop, and Canva, I am able to create visually stunning brochures, newsletters, logos, business cards, posters, postcards, social media posts, stationary designs, flyers, banners, thumbnails, and image retouching. My designs are tailored to meet the unique needs of each client, and I am dedicated to providing exceptional customer service that exceeds expectations. Whether you need a new logo or a full suite of marketing materials, I am committed to delivering outstanding results that help your business stand out from the competition.
+
 
